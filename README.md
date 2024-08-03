@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: 他/he/li/هو/он/彼/él.
 - ⚡ Fun fact: The native dialects of my parents and grandparents include Quanzhou Hokkien, Taishan Cantonese and Hakka, but I can only speak Mandarin and 2 varieties of Cantonese natively.
 
+| | nomo | mallongigo |
+| --- | --- | --- |
+| esperanta nomo | Mingeo | |
+| patra familia nomo | Yang | Y. (ipsilono) |
+| patrina familia nomo | Wu | W. (vavo) |
